@@ -1,5 +1,10 @@
 # madara-speech-c-v
+![image](https://github.com/lmcteam206/madara-speech-c-v/assets/140020887/fac1542b-4115-4042-9d5e-c3c86f36aa81)
+
 copy and paste as you wnt
+
+
+
 ""
 Wake up to reality! Nothing ever goes as planned in this accursed world. The longer you live, the more you realize that the only things that truly exist in this reality are merely pain, suffering and futility. Listen… Everywhere you look in this world, wherever there is light, there will always be shadows to be found as well. As long as there is a concept of victors, the vanquished will also exist. The selfish intent of wanting to preserve peace initiates wars and hatred is born in order to protect love. There are nexuses, causal relationships that cannot be separated. 
 
